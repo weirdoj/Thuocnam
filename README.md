@@ -1,2 +1,2 @@
-Thuoc Nam
-Suu tam thuoc Nam tren internet
+Thuốc Nam
+Các bài thuốc Nam trên internet
