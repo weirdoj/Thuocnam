@@ -17,3 +17,13 @@ Cách làm:
 Tuy nhiên, nếu sử dụng hỗn hợp này để làm sạch các mạch máu, hãy uống với liều lượng thấp hơn, khoảng 1-2 muỗng canh/lần. Để phát huy tòa bộ công dụng, phải kiên trì sử dụng trong thời gian 40 ngày. Mỗi năm chỉ được thực hiện 1 liệu trình dùng quá nhiều sẽ bị tác dụng phụ, ảnh hưởng đến dạ dày hay bị loãng máu quá.
 
 Sau thời gian áp dụng, lưu thông máu, chức năng não cũng sẽ được cải thiện tốt hơn, huyết áp duy trì ở mức ổn định và các cholesterol xấu trong máu giảm xuống.
+
+<hr>
+
+Theo y học cổ truyền, rối loạn mỡ máu thuộc chứng đàm ẩm, sinh ra khi công năng của tạng phủ bị rối loạn, tân dịch không phân bố, không vận hành được sẽ ngưng tụ tạo thành thấp, thấp hóa thành đàm ẩm. Theo Hải Thượng Lãn Ông: “trị đàm tiên trị khí, khí thuận đàm tự tiêu”, do đó cần phải chú ý điều trị cả gốc lẫn ngọn.
+
+Dựa vào nguyên tắc điều trị của y học cổ truyền, hội đồng nghiên cứu Huyết mạch khang đã lựa chọn bảng thành phần có tác dụng hoạt huyết phối theo quy tắc Quân – Thần – Tá – Sứ trong y học cổ truyền gồm:
+- Vị Quân tức là Vua là vị chủ gồm: Giảo cổ lam, Linh chi, Liên diệp và Sơn tra.
+- Vị Thần tức là Tướng là vị chính gồm: Đẳng sâm, Câu kỷ tử, Actiso.
+- Vị Tá tức là phò tá cho Tướng là vị phụ gồm: Thảo quyết minh.
+- Vị Sứ tức là sứ giả dẫn dắt gồm: Ngưu tất, Thổ phục linh.
